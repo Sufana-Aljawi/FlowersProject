@@ -1,1 +1,2 @@
 # FlowersProject
+# Flowers are the most beautiful creatures in the world.The most common flower that we have in Saudi Arabia is Altaif flower.It has a bright pink color, small and smells so good. So many people have this flower in their garden because they adore how it looks and has a powerful smell.
